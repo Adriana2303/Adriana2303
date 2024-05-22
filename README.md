@@ -8,4 +8,8 @@ Meu nome é Adriana
 
 ### PARA ENTRAR EM CONTATO COMIGO 📫
 
-alvesgaby406@gmail.com
+00001088771518SP@al.educacao.sp.gov.br
+
+
+
+![](https://media1.tenor.com/m/LJ3JNWFzFYMAAAAd/cute-bunny-carrot-animated.gif)
